@@ -1,7 +1,7 @@
 ## Hi there 👋
 - 🔭 I’m currently working on nasa 
 - 🌱 I’m currently learning cagar sem sujar a bunda
-- 👯 I’m looking to collaborate on mojangue
+- 👯 I’m looking to collaborate na mojang
 - 🤔 I’m looking for help with molher
 - 💬 Ask me about macaco
 - 📫 How to reach me: se mate
